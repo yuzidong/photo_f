@@ -1,3 +1,4 @@
+[【上一组:室内艺术照】](http://yuzidong.github.io/photo_e) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:东山家私城】](http://yuzidong.github.io/photo_g)   
 ![f1](https://github.com/yuzidong/wedding/blob/master/images/f1.jpg?raw=true)  
 ![f2](https://github.com/yuzidong/wedding/blob/master/images/f2.jpg?raw=true)  
 ![f3](https://github.com/yuzidong/wedding/blob/master/images/f3.jpg?raw=true)  
@@ -5,3 +6,4 @@
 ![f5](https://github.com/yuzidong/wedding/blob/master/images/f5.jpg?raw=true)  
 ![f6](https://github.com/yuzidong/wedding/blob/master/images/f6.jpg?raw=true)  
 ![f7](https://github.com/yuzidong/wedding/blob/master/images/f7.jpg?raw=true) 
+[【上一组:室内艺术照】](http://yuzidong.github.io/photo_e) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:东山家私城】](http://yuzidong.github.io/photo_g)  
