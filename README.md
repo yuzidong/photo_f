@@ -1,1 +1,7 @@
-# photo_f
+![f1](https://github.com/yuzidong/wedding/blob/master/images/f1.jpg?raw=true)  
+![f2](https://github.com/yuzidong/wedding/blob/master/images/f2.jpg?raw=true)  
+![f3](https://github.com/yuzidong/wedding/blob/master/images/f3.jpg?raw=true)  
+![f4](https://github.com/yuzidong/wedding/blob/master/images/f4.jpg?raw=true)  
+![f5](https://github.com/yuzidong/wedding/blob/master/images/f5.jpg?raw=true)  
+![f6](https://github.com/yuzidong/wedding/blob/master/images/f6.jpg?raw=true)  
+![f7](https://github.com/yuzidong/wedding/blob/master/images/f7.jpg?raw=true) 
